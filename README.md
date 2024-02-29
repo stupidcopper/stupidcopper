@@ -1,5 +1,5 @@
-<b>✓ |</b> _c+h, ic/ooc int_ </br>
-<b>✗ |</b> _nsfw, serious rp, ships_ </br>
+<b>✓ |</b> _c+h, ic/ooc interaction_ </br>
+<b>✗ |</b> _nsfw, serious rp, ship warring_ </br>
 -
 
 ▪ [male , he/him](https://en.pronouns.page/@stupidcopper) </br>
