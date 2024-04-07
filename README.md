@@ -1,5 +1,4 @@
-**
-male he/him**
+**male he/him**
 
 **✓ |** _c+h , ic/ooc interaction_ </br>
 **✗ |** _unsolicited advances , serious rp , ship warring_ </br>
