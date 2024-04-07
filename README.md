@@ -1,4 +1,4 @@
-**18
+**
 male he/him**
 
 **✓ |** _c+h , ic/ooc interaction_ </br>
