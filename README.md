@@ -1,4 +1,7 @@
-> **18 male he/him**
+> **18 male he/him** </br>
+
+──────────────────────────────</br>
+![ezgif-4-4cc4302bd1](https://github.com/stupidcopper/stupidcopper/assets/161649079/d81026ef-3bd4-42f4-a5ea-21fb28ebd5f2) hi ponytowners </br>
 
 **✓ |** _c+h , ic/ooc interaction_ </br>
 **✗ |** _unsolicited advances , serious rp , ship warring_ </br>
