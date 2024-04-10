@@ -8,7 +8,7 @@
  </br>
  </br>
  </br>‎
- ‎‎ ‏‏‎ ‎‏‏‎ ‎‏‏‎ ‎‏‏‎ ‎‏‏‎ ‎‏‏‎ ‏‏‎ ‎‏‏‎ ‏‏‎ ‎‏‏‎ ‏‏‎ ‎‏‏‎ ‎‏‏‎ ‎‎‏‏‎ ‎‏‏‎ ‎‏‏‎‎‏‏‎‏‏‎ ‎‏‏‎ ‏‏‎ ‎‏‏‎ ‎‎‏‏‎‎‏‏‎‎‎‏‏‎   ‎‏‎‏‏‎ ‎‏‏‎ ‎‏‏‎ ‎‎‏‏‎ ‎‏‏‎ ‎‏‏‎ ‎‏‏‎ ‎■ [carrd](https://coppercain.carrd.co) ■ [prns page](https://en.pronouns.page/@stupidcopper) ■ </br>
+ ‎‎ ‏‏‎ ‎‏‏‎ ‎‏‏‎ ‎‏‏‎ ‎‏‏‎ ‎‏‏‎ ‏‏‎ ‎‏‏‎ ‏‏‎ ‎‏‏‎ ‏‏‎ ‎‏‏‎ ‎‏‏‎ ‎‎‏‏‎ ‎‏‏‎ ‎‏‏‎‎‏‏‎‏‏‎ ‎‏‏‎   ‏‏‎ ‎‏‏‎ ‎‎‏‏‎‎‏‏‎‎‎‏‏‎   ‎‏‎‏‏‎ ‎‏‏‎ ‎‏‏‎ ‎‎‏‏‎ ‎‏‏‎ ‎‏‏‎ ‎‏‏‎ ‎■ [carrd](https://coppercain.carrd.co) ■ [prns page](https://en.pronouns.page/@stupidcopper) ■ </br>
 </br> ![oie_2ggyLMHVzokP](https://github.com/stupidcopper/stupidcopper/assets/161649079/6f93e4ba-ed5e-472c-b5a4-7b304e02fb7a)
 ![this is crazy](https://github.com/stupidcopper/stupidcopper/assets/161649079/c3fa1849-a10f-4aa8-91b9-45ef7a08d53a)
 ![oie_NpsBWWApjBJ7](https://github.com/stupidcopper/stupidcopper/assets/161649079/af4d9c1f-6106-4ee7-b93e-d7dc2858ae0d)
