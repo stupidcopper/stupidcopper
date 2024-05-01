@@ -1,11 +1,14 @@
- **18 male he/him** </br>
-
 ──────────────────────────────</br>
 ![ezgif-4-4cc4302bd1](https://github.com/stupidcopper/stupidcopper/assets/161649079/d81026ef-3bd4-42f4-a5ea-21fb28ebd5f2) hi ponytowners </br>
 
-**✓ |** _c+h , ic/ooc interaction_ </br>
-**✗ |** _unsolicited advances , serious rp , ship warring_ </br>
-──────────────────────────────
+**✓ |** _c+h , ic/ooc interaction , whispers_ </br>
+**✗ |** _unsolicited advances and rp , ship warring , friend requests_ </br>
+──────────────────────────────</br> 
+</br> 
+**18 male he/him** </br>
+
+hides freely, no offense </br>
+uses pt to people watch, hang with friends and make skins</br>
 </br>
 </br>![7badd65fd98776b26425f624bda61a00](https://github.com/stupidcopper/stupidcopper/assets/161649079/4c3ad250-c541-4ff2-8d50-4c101cee7579) </br>
  </br>
