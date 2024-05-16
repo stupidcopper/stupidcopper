@@ -9,7 +9,7 @@
 
 hides freely, no offense </br>
 </br>
-</br>![c7690760cf17f25afe4581389f4bb9ef](https://github.com/stupidcopper/stupidcopper/assets/161649079/fd8c70bb-93e4-4e38-99b8-f358dcffd4c6)</br>
+</br>![c7690760cf17f25afe4581389f4bb9ef](https://github.com/stupidcopper/stupidcopper/assets/161649079/d826cbf0-eeb5-47be-9f26-8aac64be3244)</br>
  </br>
  </br>
  </br>‎
