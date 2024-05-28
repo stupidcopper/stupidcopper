@@ -5,7 +5,7 @@
 **✗ |** _unsolicited advances , ship warring , friend requests_ </br>
 ──────────────────────────────</br> 
 </br> 
-**male he/him** </br>
+**18 male** </br>
 
 hides freely, no offense </br>
 </br>
