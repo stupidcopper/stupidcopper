@@ -6,8 +6,8 @@
 ──────────────────────────────</br> 
 </br> 
 **18 male he/him** </br>
-
-hides freely, no offense </br>
+english </br>
+ hides freely, no offense </br>
 </br>
 </br>![c7690760cf17f25afe4581389f4bb9ef](https://github.com/stupidcopper/stupidcopper/assets/161649079/d826cbf0-eeb5-47be-9f26-8aac64be3244)</br>
  </br>
