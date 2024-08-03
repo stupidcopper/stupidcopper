@@ -2,7 +2,7 @@
 ![ezgif-4-4cc4302bd1](https://github.com/stupidcopper/stupidcopper/assets/161649079/d81026ef-3bd4-42f4-a5ea-21fb28ebd5f2) hi ponytowners </br>
 
 **✓ |** _c+h , ic/ooc interaction , whispers_ </br>
-**✗ |** _unsolicited advances , ship warring , friend requests _ </br>
+**✗ |** _unsolicited advances , ship warring , friend requests_ </br>
 [basic dni](https://dni-criteria.carrd.co)</br>
 ──────────────────────────────</br> 
 </br> 
