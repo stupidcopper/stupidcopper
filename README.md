@@ -23,4 +23,4 @@ english </br>
 ![oie_NpsBWWApjBJ7](https://github.com/stupidcopper/stupidcopper/assets/161649079/af4d9c1f-6106-4ee7-b93e-d7dc2858ae0d)
 ![seizescutely](https://github.com/stupidcopper/stupidcopper/assets/161649079/6c8a141b-c947-41bf-9c01-a622d03b77a6)
 </br>
- ‎‎ ‏‏‎ ‎‏‏‎ ‎‏‏‎ ‎‏‏‎ ‎‏‏‎ ‎‏‏‎ ‏‏‎ ‎‏‏‎ ‏‏‎ ‎‏‏‎ ‏‏‎ ‎‏‏‎ ‎‏‏‎ ‎‎‏‏‎ ‎‏‏‎ ‎‏‏‎‎‏‏‎‏‏‎ ‎‏‏‎‎‏‏‎ ‎‏‏‎‎‏‏‎‏‏‎‎‏‏‎ ‎‏‏‎‎‏‏‎‏‏‎ ‎‏‏‎‎‏‏‎ ‎‏‏‎‎‏‏‎‏‏‎ ‎‏‏‎ ‎‏‏‎ ‎‏‏‎  ‎‏‏‎ ‎‏‏‎ ‎‏‏‎‎‏‏‎ ‎‏‏‎ ‎‏‏‎‎‏‏‎   ‏‏‎ ‎‏‏‎‎‏‏‎   ‏‏‎ ‎‏‏‎  ‎‏‏‎ ‎‏‏‎ ![](https://komarev.com/ghpvc/?username=stupidcopper&color=5bff00&style=flat&label=STALKERS...&abbreviated=true)
+ ‎‎ ‏‏‎ ‎‏‏‎ ‎‏‏‎ ‎‏‏‎ ‎‏‏‎ ‎‏‏‎ ‏‏‎ ‎‏‏‎ ‏‏‎ ‎‏‏‎ ‏‏‎ ‎‏‏‎ ‎‏‏‎ ‎‎‏‏‎ ‎‏‏‎ ‎‏‏‎‎‏‏‎‏‏‎ ‎‏‏‎‎‏‏‎ ‎‏‏‎‎‏‏‎‏‏‎‎‏‏‎ ‎‏‏‎‎‏‏‎‏‏‎ ‎‏‏‎‎‏‏‎ ‎‏‏‎‎‏‏‎‏‏‎ ‎‏‏‎ ‎‏‏‎ ‎‏‏‎  ‎‏‏‎ ‎‏‏‎ ‎‏‏‎‎‏‏‎ ‎‏‏‎ ‎‏‏‎‎‏‏‎   ‏‏‎ ‎‏‏‎‎‏‏‎   ‏‏‎ ‎‏‏‎  ‏‏‎ ‎‏‏‎  ‎‏‏‎ ‎‏‏‎ ![](https://komarev.com/ghpvc/?username=stupidcopper&color=5bff00&style=flat&label=STALKERS...&abbreviated=true)
